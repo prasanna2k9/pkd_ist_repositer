@@ -1,4 +1,3 @@
-# pkd_ist_repositer
-My Ist repository with Github
-Hello Github. This is my code ground.
-hello I am Prasanna
+Non-Refundable Tender Participation Fee, as indicated in table above, to be submitted
+in the form of direct deposit in the following bank account and submit the receipt along
+with a covering letter clearly indicating the Tender Reference
